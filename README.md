@@ -3,7 +3,7 @@
 # 💫About Me :
 🔭 I’m currently working on my hashnode: https://nospaceavailable.hashnode.dev
   
-🌱 I’m a websec warrior and security researcher
+💻 I’m a websec warrior and security researcher
 
   👯 I’m looking to collaborate on security research projects
 
