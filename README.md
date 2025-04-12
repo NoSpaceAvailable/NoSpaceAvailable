@@ -10,7 +10,7 @@
   💬 Ask me about for any help about my projects or any security-related topic
 
   📫 How to reach me:  
-  Mail me at "lequoccuongminecraft@gmail.com" or discord @nospaceavailable
+  Mail me at lequoccuong250105@outlook.com or discord @nospaceavailable
 
 ⚡ Fun fact: an apple a day keeps the doctor away:)
 
